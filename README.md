@@ -1,6 +1,6 @@
-# My love story with yajuan
+# My love story with yujuan
 
 -----
 
 ##在线演示
-http://muyunyun.cn/love-you/
+http://love.pkumonk.me
