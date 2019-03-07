@@ -1,4 +1,4 @@
-# My love story with yujuan
+# My love story with yajuan
 
 -----
 
